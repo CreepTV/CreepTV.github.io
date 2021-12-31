@@ -44,6 +44,7 @@ lets split this into a few sections, or those above.
 i have a crippling gaming addiction . . .
 (maaybe not crippling, but severe nonetheless) 
 game genres that i enjoy are:
+
 - On PC:
   - Minecraft
   - Factorio
@@ -56,14 +57,18 @@ game genres that i enjoy are:
   - Infinidode 2 
   - Sandship
 
+
 #### Scientific Topics
 topics that i enjoy browsing around and looking for on the interwebz are somewhat at home in heavy (metal-processing) industry and nuclear physics, but those are the most common since i find both quite interesting and both aesthetically pleasing.
 
 otherwise, near-future science fiction concepts are also of value to me like bioscience, other propulsion methods and the use of particle physics in everyday life.
 
+
 #### Music
 well, this is a hard one, since my taste of music is similarly fluid like my identity. someone once said to me:
+
 > express yourself using music [was clothing in that context] or find your identity to express using music
+
 some keywords are according to spotify `Classic Rock - Space Ambient - Steampunk - New Wave Punk - Shanty`
 just, look at contacts below for linkage
 
