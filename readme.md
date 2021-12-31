@@ -23,16 +23,22 @@ longer story to explain, but, overall, i identify best with nonbinary, trans(fem
 **i prefer people to use she/they pronouns**, thank you
 
 [Orientation Cake diagram](https://cake.avris.it/rD3)
+
 [Identity Slider Diagram](https://spectrum.avris.it/rVET)
+
 note, those above dont picture it well that i am highly fluid with my attraction preferences and such over time.
 To elaborate: it occurs that i loose complete interest of anything sexual or romantic.
+
 Overall, id say that i am not interested in love matters and related, since it involves many adjustments in clear vision and adverse psychological effects.
 for my preferences i do not care about bodyly matters alot, and im following the motto "mind over matter" which technically makes me pansexual, if you adhere to labels that hard.
+
 And (explained further below), most of the shards are furry of varying degrees.
+
 
 ### Interests
 this is a all-over-the-place topic but yea, if wikipedia would be a game, id have many hundreds of hours
 lets split this into a few sections, or those above.
+
 
 #### Gaming
 i have a crippling gaming addiction . . .
@@ -52,6 +58,7 @@ game genres that i enjoy are:
 
 #### Scientific Topics
 topics that i enjoy browsing around and looking for on the interwebz are somewhat at home in heavy (metal-processing) industry and nuclear physics, but those are the most common since i find both quite interesting and both aesthetically pleasing.
+
 otherwise, near-future science fiction concepts are also of value to me like bioscience, other propulsion methods and the use of particle physics in everyday life.
 
 #### Music
@@ -59,6 +66,8 @@ well, this is a hard one, since my taste of music is similarly fluid like my ide
 > express yourself using music [was clothing in that context] or find your identity to express using music
 some keywords are according to spotify `Classic Rock - Space Ambient - Steampunk - New Wave Punk - Shanty`
 just, look at contacts below for linkage
+
+
 
 ### My Dream Realm
 Someday i started to write about characters that inherit parts of my personality, with the aim to effectively split myself into those characters. that didnt suceed but i kept to write still, and now i got a pretty intricate canon of characters and places in my head.
