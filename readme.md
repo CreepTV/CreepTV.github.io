@@ -96,3 +96,15 @@ Currently, there are 7 Shards:
   - Human female of unknown identity and age, well-experienced with clothes, but usually keeps a depressive mindset.
 - Ray
   - Formerly Human whos now a Cyborg being, traumatised by forced experiences in sex work.
+
+
+### Contacts and where to find me
+
+Sorted by Priortity or frequency of usage
+
+1. Discord 
+1.1 `CreepTV#9128`
+2. Spotify
+2.1 [CreepTV](https://open.spotify.com/user/ny9nnzs2vmotlj4q548viozjh?si=dE-wPNZmRB-Q9iD8dm9eew)
+3. Steam
+3.1 [CreepTV](https://steamcommunity.com/id/CreepTV/)
