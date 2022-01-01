@@ -24,7 +24,7 @@ longer story to explain, but, overall, i identify best with nonbinary, trans(fem
 
 [Orientation Cake diagram](https://cake.avris.it/rD3)
 
-[Identity Slider Diagram](https://spectrum.avris.it/rVET)
+[Identity Slider Diagram](https://spectrum.avris.it/w7fS)
 
 note, those above dont picture it well that i am highly fluid with my attraction preferences and such over time.
 To elaborate: it occurs that i loose complete interest of anything sexual or romantic.
