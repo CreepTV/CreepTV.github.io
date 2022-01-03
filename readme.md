@@ -98,6 +98,33 @@ Currently, there are 7 Shards:
   - Formerly Human whos now a Cyborg being, traumatised by forced experiences in sex work.
 
 
+### Skills
+
+this is a bit of "a little bit of everything", but ill try
+rating my own performance and such on a percentage scale; 0% = cant at all, 100% = legendary master
+
+in digital universes:
+- art with procreate, 50-60%
+- programming with c#, 20-25%
+- memes 
+in real life:
+- art utilising pencils, acrylic paint, oil pastels, 60-75%
+- writing places and character descriptions, 80%
+Languages:
+- german (native)
+- english (close-to-native)
+- spanish (mediocre to poor)
+- misc fragments of european languages
+
+### Favourite Fandoms and Media
+
+##### books:
+- Diamant series by Andreas Eschbach
+- Nightwatch series by Sergei Lukyanenko
+- alot of dragon related things
+
+
+
 ### Contacts and where to find me
 
 Sorted by Priortity or frequency of usage
