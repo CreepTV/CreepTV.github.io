@@ -82,6 +82,8 @@ this went on and im somewhat doing self therapy with it by packing it all with h
 No, these Characters do not posess indepencendce nor take control over any of my actions, i cancelled that development
 but i think that it would be possible to access the assoicated traits by calling me by the name of that shard. 
 
+Update 04/22: this is all is mostly out of my mind, but i intend to keep it around as memory and explanation of myself.
+
 #### Shards
 Shards are the collective term for Characters that ive made so far, or rather, isolated from the rest of myself.
 Currently, there are 8 Shards:
@@ -114,6 +116,8 @@ A vast ocean that spans the coast of the northern reaches and swale. residence t
 Afoot of a mountain massive lays a ice flat, where the metaphoric emotional cold resides.
 
 those are the "main" places as of right now, not going to go into detail that much.
+
+
 ### Skills
 
 this is a bit of "a little bit of everything", but ill try
@@ -123,9 +127,11 @@ in digital universes:
 - art with procreate, 50-60%
 - programming with c#, 20-25%
 - memes 
+
 in real life:
 - art utilising pencils, acrylic paint, oil pastels, 60-75%
 - writing places and character descriptions, 80%
+
 Languages:
 - german (native)
 - english (close-to-native)
